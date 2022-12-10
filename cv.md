@@ -13,7 +13,7 @@ Tel: +375 29 167-57-04
 
 ********* 
 ## **Briefly About Myself**
-Having started my career as a haematologists in a leading Minsk city hospital, soon I changed my interests to marketing in pharmaceuticals and still have passion to it.
+Having started my career as a haematologists in a leading Minsk city hospital, soon I changed the interests to marketing in pharmaceuticals and still have passion to it.
 
 A year ago I decided to go deeply to the marketing, to concentrate on internet part of it, considering it the most perspective and interesting development direction. Some of my clients need web-site, so that I started to do small web-sites using no-code programming. Considering, that some moments need code (html, css, jquery, JS) understanding, I joined RS school to understand, what and where looking for, if needed.
 
