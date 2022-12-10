@@ -5,12 +5,12 @@
 ## **Contact information**
 Address: Minsk, Belarus
 
-Email: natallia.smi@gmail.com
+E-mail: natallia.smi@gmail.com
 
 Tel: +375 29 167-57-04
 
 [Linkedin](https://www.linkedin.com/in/natallia-smirnova)
-
+[Instagram](https://instagram.com/digitalis_by)
 ********* 
 ## **Briefly About Myself**
 Having started my career as a haematologists in a leading Minsk city hospital, soon I changed the interests to marketing in pharmaceuticals and still have passion to it.
