@@ -40,6 +40,7 @@ Since 08.2021 | MBA “Digital Marketing”
 01.2018 – 08.2019 | Pharmland, Belarus, Product Manager (OTC & Food Supplements)
 06.2013 – 01.2018 | E-commerce: e-commerce Beauty-shop.by. Director & Founder
 06.2008 – 03.2013 | Novartis Pharma Services-Sandoz Belarus, Head Retail
+06.2006-06.2008 | Lek Belarus, Product Manager
 ********* 
 ## **Courses:**
 * Data visualization basics; 
